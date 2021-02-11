@@ -1,0 +1,1 @@
+Jeg er p[ kurs]
