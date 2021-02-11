@@ -1,1 +1,1 @@
-Jeg er p[ kurs]
+Jeg er paa kurs ennaa
